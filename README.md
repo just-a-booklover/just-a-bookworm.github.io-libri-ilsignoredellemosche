@@ -121,11 +121,6 @@ Se all’inizio si è distaccati e indifferenti nei confronti dei ragazzini, pia
 Anche il titolo, come si posiziona nel significato del libro? Ho cercato e ho trovato che il Signore delle Mosche è uno dei nomi con cui si può chiamare il diavolo, ma…? <br>
 Okay, ho appena riletto quei brani e forse rappresenta la paura, la perdita della ragione¿¿¿ Non ne ho idea.
 </p>
-
-<p><strong>Citazioni: </strong> <br>
-
-</p>
-
 	
 	       <p id="psmall" style=" font-size:20px;">13 novembre 2020 </p>
 	       </div>
